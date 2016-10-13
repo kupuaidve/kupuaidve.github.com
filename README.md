@@ -1,2 +1,2 @@
 # kupuaidve.github.com
-my blog
+deep dowm
